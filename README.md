@@ -8,4 +8,4 @@
 
 <div id="ata" align="center">
   
-˖ ‎ [strawpage](https://teamsleep.straw.page/) ‎ ⟡ ‎ [gallery](https://fuyumitodoroki.straw.page/) ‎ ˖
+˖ ‎ [straw](https://teamsleep.straw.page/) ‎ ⟡ ‎ [gallery](https://fuyumitodoroki.straw.page/) ‎ ˖

@@ -7,5 +7,3 @@
 ![](https://files.catbox.moe/o68qfk.png)
 
 <div id="ata" align="center">
-  
-  ˖ ‎ [strawpage](https://teamsleep.straw.page/) ‎ ˖
